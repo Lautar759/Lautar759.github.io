@@ -1,6 +1,3 @@
 # Lautar759.github.io
 HOLA VALLEJOS
-SOIDHFOSID
-higljhgj
-654
-786576
+Hola x2
